@@ -1,4 +1,4 @@
-- 👋 Salut, Je suis @GeKOfficiel âgé de 22 ans
+- 👋 Salut, Je suis @GeKOfficiel âgé de 25 ans
 - 👀 Je m'intéresse beaucoup au développement
 - ⚠️ École 42 pendant 6 mois
 - 📫 Tu souhaite me contacter vient sur discord
